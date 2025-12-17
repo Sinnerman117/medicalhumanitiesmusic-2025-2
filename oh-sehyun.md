@@ -12,13 +12,13 @@ At the age of 24, Rachmaninoff released his Symphony No. 1, which was met with s
 
 Similarly, in Billie Eilish’s song ['Before I Go'](jung-yunjin.md) which is a song about depression of herself, the piece is composed solely of slow-tempo piano and vocals, reminiscent of Rachmaninoff’s Piano Concerto No. 2. This creates an auditory emptiness that conveys a sense of hollow resonance to the listener. Furthermore, by directly expressing her emotions through lyrics such as “I'm not okay, I feel so scattered” and “Sorry can’t save me now, sorry I don’t know how,” she delivers her feelings even more effectively. While Rachmaninoff’s concerto suggests the possibility of overcoming the same depression, it is striking that Billie Eilish conveys it without any such will or possibility.
 
+In summary, Rachmaninoff's Piano Concerto No. 2 is closely related to the topics discussed in the 5th-week class, "Can suffering be expressed through music?" and the 12th-week class, "There is a narrative in illness and music," as well as to the HYQ portfolio, "Can music regulate people's emotions?"
+
 <img src="./oh-sehyun.png" alt="Rachmaninoff, depressed, sitting in front of a piano" style="width:30%;" />
 
 # Song for my Funeral 
 
 Playing Kim Kwang-seok's ["Love has gone"](https://youtu.be/Ikbj54iFTdw) at a funeral likely comes from a place of longing and regret. Just like the lyrics, 'I loved you, but I loved you, yet all I can do is just watch from afar. I can't get closer, and though I want to stay by your side, I have no choice but to leave', it reflects the acceptance of a reality where love remains, but we cannot be together in the end. It would be a meaningful moment, allowing the people left behind to remember and cherish that love.
-
-In summary, Rachmaninoff's Piano Concerto No. 2 is closely related to the topics discussed in the 5th-week class, "Can suffering be expressed through music?" and the 12th-week class, "There is a narrative in illness and music," as well as to the HYQ portfolio, "Can music regulate people's emotions?"
 
 # 라흐마니노프 피아노 교향곡 2번
 
